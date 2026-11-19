@@ -11,4 +11,4 @@ IT Support Specialist transitioning from 4+ years in corporate operations, payro
 - **[Enterprise Home-Lab & Troubleshooting Logs](https://github.com)** *(Coming soon)*
 
 #### Connect
-- **LinkedIn:** [www.linkedin.com/in/michaelamoahit](https://www.://linkedin.com)
+- **LinkedIn:** [www.linkedin.com/in/michaelamoahit]
